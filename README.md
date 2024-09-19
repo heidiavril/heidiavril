@@ -2,6 +2,6 @@
 ### Oh wait, this isn't Crazy Taxy. This is just my account on GitHub 🙁
 Well, we'll work to do it more crazy-taxier ✨  
 Or at least just taxier 😏 
-![crzytaxi](imgs/crrrraaazytaxi.jpg)  
+![crzytaxi](imgs/crrrraaazytaxi2.jpg)  
 are u ready?  
 here we GOOOOOOOO
